@@ -14,7 +14,7 @@ follow me to get free bread 🥖🍞 [twitter](https://x.com/hkyo_xo) , [tiktok]
 
 i love u hanakago tsubasa
 
-yume: rufus shinra (non.sharing), light yagami (sel.sharing) , evernight (sharing?? sel.sharing?? idk but im ok w doubles for now)
+yume: rufus shinra (non.sharing), light yagami (sel.sharing)
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
