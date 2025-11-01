@@ -2,7 +2,7 @@
 <img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=A7C0D9&label=✧.*&base=2845>
 </p>
 
-byi: HI i dont bite, but maybe sometimes i'd be a bit awkward erm. and SORRY if i dont reply back much sometimes bc i dont like long conversations 💔
+byi: HI i dont bite, but maybe sometimes i'd be a bit awkward erm. and SORRY if i dont reply back much sometimes,, i dont rlly like long conversations 💔
 
 dni: basic dni criteria ok, no weirdo and anything 
 
