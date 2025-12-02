@@ -8,7 +8,7 @@ byi: sorry if i sometimes dont reply back, i dont rlly find long conversations e
 
 dni: basic dni criteria + if you dislike any of my interests
 
-follow me/be my oomf to get free bread 🥖🍞 [twitter](https://x.com/shy4uo) , [tiktok](https://www.tiktok.com/@kyooqi)
+follow me/be my oomf to get free strawberry🍓🍓 [twitter](https://x.com/shy4uo) , [tiktok](https://www.tiktok.com/@kyooqi)
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
